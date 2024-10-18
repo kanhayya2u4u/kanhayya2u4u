@@ -1,8 +1,6 @@
 - 👋 Hi, I’m @kanhayya2u4u
-- 👀 I’m interested in ...
-- 🌱 I’m currently learning...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me(kannayyakadapa@gmail.com)
+- 👀 I’m interested in teaching and developing
+- 📫 How to reach me(kannayyakadapa@gmail.com) linkedin(https://www.linkedin.com/feed/?trk=guest_homepage-basic_google-one-tap-submit)
 - 😄 Pronouns:Rony
 
 <!---
